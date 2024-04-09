@@ -1,12 +1,12 @@
 <p align="center">
-  <img alt="lightyearvpn logo" src="https://lightyearvpn.com/assets/logo.png" width="88">   
+  <img alt="sugarpapalive logo" src="https://sugarpapalive.online/images/xqb-logo.png" width="88">   
 </p>
 
 ## [Superpapa Live](https://www.sugarpapa.live/) - SugarPaPa Live App - Web3.0 1V1 Live Dating Platform is about to enter the great Indian market, Please follow us.
 
 ### Home
 
-> [Official website (Updates on 2020/05/28)](https://www.sugarpapa.live/)
+> [Official website (Updates on 2024/04/08)](https://www.sugarpapa.live/)
 
 ### Download
 
