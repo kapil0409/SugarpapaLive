@@ -10,15 +10,8 @@
 
 ### Download
 
-<a target="_blank" href='https://apps.apple.com/us/app/lightyearvpn-fast-trusted/id1495258888'><img width="300" alt='Get it on Google Play' src='https://applelaneanimalhospital.com/wp-content/uploads/2019/04/apple.png'/></a>
+<a target="_blank" href='https://store.sugarpapa.live/SugarPaPa-2024040703.apk'><img width="300" alt='Download APK' src='https://sugarpapalive.online/images/download.png'/></a>
 
-<a target="_blank" href='https://play.google.com/store/apps/details?id=com.stingsystemllc.lightyearapp'><img width="300" alt='Get it on Google Play' src='https://applelaneanimalhospital.com/wp-content/uploads/2019/04/google.png'/></a>
-
-### Cloud Drive
-
-If GitHub Download is slow, please download from Cloud Drive for Windows, Mac, and Adnroid client app.
-
-> https://lightyear.lanzous.com/b00tu4njg(跳转存储域名)
 
 ### Whatsapp Group
 
