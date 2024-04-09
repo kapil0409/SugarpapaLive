@@ -6,7 +6,7 @@
 
 ### Home
 
-> [Official website (Updates on 2024/04/08)](https://www.sugarpapa.live/)
+> [Official website (Updates on 2024/04/08)](https://sugarpapalive.online/)
 
 ### Download
 
