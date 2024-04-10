@@ -13,14 +13,14 @@
 <a target="_blank" href='https://store.sugarpapa.live/SugarPaPa-2024040703.apk'><img width="300" alt='Download APK' src='https://sugarpapalive.online/images/download.png'/></a>
 
 
-### Whatsapp Group
+### Whatsapp:
 
->
+> +66 0807204771 
 
-### Telegram Group
+### Telegram:
 
-> 
+> @sugarpapabus
 
-### Facebook Group
+### Global Customer Service:
 
->
+> spplapplication@gmail.com
