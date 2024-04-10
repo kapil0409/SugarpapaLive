@@ -12,8 +12,8 @@
 
 <a target="_blank" href='https://store.sugarpapa.live/SugarPaPa-2024040703.apk'><img width="300" alt='Download APK' src='https://sugarpapalive.online/images/download.png'/></a>
 
-
-### Whatsapp:
+##Global Customer Service:
+### WhatsApp:
 
 > +66 0807204771 
 
@@ -21,6 +21,6 @@
 
 > @sugarpapabus
 
-### Global Customer Service:
+### Email:
 
 > spplapplication@gmail.com
